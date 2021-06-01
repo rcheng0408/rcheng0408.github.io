@@ -1,1 +1,1 @@
-# rcheng0408.github.io
+Map of My Favorite Destinations
